@@ -1,2 +1,0 @@
-# Pahlawankecilku
-pahlawankecil
